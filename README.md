@@ -4,6 +4,6 @@
 
 # execlua femboy femboy фембой фембоооой
 
-![furry](https://i.redd.it/w7tofdc2foya1.gif) ![boykisser](https://i.redd.it/xwe52lankn1f1.gif)
+![furry](Furry.gif) ![boykisser](boykisser.gif)
 
 </div>
